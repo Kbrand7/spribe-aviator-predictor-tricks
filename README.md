@@ -1,0 +1,1 @@
+# spribe-aviator-predictor-tricks
